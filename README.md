@@ -19,5 +19,7 @@ In the dynamic realm of data analytics, I am committed to staying at the forefro
 
 Let's Connect!
 I'm enthusiastic about networking, collaborating on innovative projects, and sharing insights within the data community. Let's connect and explore how our collective skills can contribute to the ever-evolving landscape of data.
+
 Linkedin: https://www.linkedin.com/in/rasha-yazbeck/
+
 Resume: https://docs.google.com/document/d/1OEIXu9IbanzW1_pgNU8uVXfaFUv267X9RnDiu4rUd7Q/edit?pli=1
